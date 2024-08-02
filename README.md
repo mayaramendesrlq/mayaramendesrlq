@@ -2,7 +2,7 @@
 
 meu nome é mayara mendes
 
-- estou estudando no alura
+- estou estudando no [Alura](https://www.alura.com.br)
 - estou  me desenvolvendo na linguagem javaScript
 - utilozo esse espaço para organizar e compatilhar meus projetos  em desenvolvimentos
 
