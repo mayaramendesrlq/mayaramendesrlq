@@ -10,6 +10,6 @@ meu nome é mayara mendes
 ![](https://media1.tenor.com/m/Mc9pFYORVJIAAAAC/queen-rhaenyra-rhaenyra-targaryen.gif)
 
 ### vocé entrar e contato comigo 📪
-@00001203369918sp@aluno.educacao.sp.gov.br
+@00001203369918sp@al.educacao.sp.gov.br
 
 @mendesrllq_
